@@ -1,4 +1,4 @@
-# If You Fork Make Sure To Star And Follow @foreignbandss
+# If You Fork Make Sure To Star And Follow [foreignbandss](https://github.com/foreignbandss)
 
 ## Where Learning Is Fun!
 
